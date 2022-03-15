@@ -1,2 +1,0 @@
-# hotelku
-ini indexnya yaa
